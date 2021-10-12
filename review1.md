@@ -1,4 +1,4 @@
-![Call of Duty: Black Ops Cold War](https://www.google.com/url?sa=i&url=https%3A%2F%2Fnl.wikipedia.org%2Fwiki%2FCall_of_Duty%3A_Black_Ops_Cold_War&psig=AOvVaw02fWYY_FUSyUYQwao-yb-S&ust=1634120396431000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCMDziYLTxPMCFQAAAAAdAAAAABAD)
+![Call of Duty: Black Ops Cold War](https://nl.wikipedia.org/wiki/Call_of_Duty:_Black_Ops_Cold_War#/media/Bestand:Codblackopscoldwarblack.png)
 
 # Call of Duty: Black Ops Cold War
 
