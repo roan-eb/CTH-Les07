@@ -1,4 +1,4 @@
-![Call of Duty: Black Ops Cold War](https://nl.wikipedia.org/wiki/Call_of_Duty:_Black_Ops_Cold_War#/media/Bestand:Codblackopscoldwarblack.png)
+![Call of Duty: Black Ops Cold War](https://gamesadda.in/wp-content/uploads/2020/10/Call-of-Duty-Black-Ops-Cold-War-Wiki-Guide.jpg)
 
 # Call of Duty: Black Ops Cold War
 
